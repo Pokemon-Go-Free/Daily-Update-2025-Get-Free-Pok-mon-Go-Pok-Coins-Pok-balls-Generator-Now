@@ -2,7 +2,7 @@
 
 Are you a dedicated Pokémon Go player struggling to get enough PokéCoins and Pokéballs to continue your adventure? Well, you're in luck! Today, we are excited to announce a **FREE Pokémon Go PokéCoins & Pokéballs Generator** that can enhance your gaming experience by providing you with unlimited resources to catch, train, and battle your favorite Pokémon. Keep reading to discover how to access this free tool and boost your Pokémon journey in 2025!
 
-### [✅👉CLICK HERE TO GET NOW FREE!](https://freeforyou.xyz/pokemon/go/free/)
+### [✅👉 CLICK HERE TO GET NOW FREE](https://justfree.xyz/pokemon/go/)
 
 ### Get Started with the Free Pokémon Go Generator – Claim Your Offer!
 
